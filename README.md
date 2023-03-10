@@ -86,10 +86,10 @@ Nothing
 ![IMG_9367](https://user-images.githubusercontent.com/124316944/224218108-e6975790-127f-4aa0-a527-6445669b8c74.png)
 
 #28
-![IMG_9368](https://user-images.githubusercontent.com/124316944/224218112-6dfa167f-5bf3-4ed1-a4ce-aef96667d393.png)
+<img width="563" alt="IMG_4808" src="https://user-images.githubusercontent.com/124316944/224395023-b5881fdc-fc98-469e-a5f9-af712cc4e221.PNG">
 
 #29
-![IMG_4803](https://user-images.githubusercontent.com/124316944/224219061-11a06199-8c9e-402a-96e0-5d54f95da9f9.jpg)
+<img width="563" alt="IMG_4809" src="https://user-images.githubusercontent.com/124316944/224395071-d3649cdb-a7ff-49df-95a0-df6ba6d89cdc.PNG">
 
 #30
 ![IMG_9366](https://user-images.githubusercontent.com/124316944/224219095-6a449b43-c5ea-4ecb-b8ff-f2f4381cde0c.png)
