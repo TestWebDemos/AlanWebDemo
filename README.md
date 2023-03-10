@@ -74,11 +74,13 @@ Nothing
 ![IMG_9361](https://user-images.githubusercontent.com/124316944/224217655-506b2dfc-639f-455d-834d-6259a811bb3f.png)
 
 #24 (Ramu)
+![IMG_9372](https://user-images.githubusercontent.com/124316944/224221705-bf1e492b-8a71-42e0-b453-cf52f6038391.png)
 
 #25 (Order summury Kelly)
 ![IMG_9362](https://user-images.githubusercontent.com/124316944/224217680-d798afe7-8377-4870-b27e-47c6cec96c47.png)
 
 #26 (Order summury Ramu)
+![IMG_9373](https://user-images.githubusercontent.com/124316944/224221709-5431563c-1b94-4fcc-b04b-20286111b8ee.png)
 
 #27 (add coke)
 ![IMG_9367](https://user-images.githubusercontent.com/124316944/224218108-e6975790-127f-4aa0-a527-6445669b8c74.png)
